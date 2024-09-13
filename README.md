@@ -24,8 +24,8 @@ Skills:
 
 Raegan Storin
 
-Major: 
+Major: Economics
 
-Year:
+Year: Senior
 
-Skills:
+Skills: Provides a unique economic perspective, inquisitive, ready to learn
